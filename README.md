@@ -1,8 +1,8 @@
-# Laalo Gujarati Movie Collection
+# [Laalo Gujarati Movie Collection](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/1)
 
 Laalo: Krishna Sada Sahaayate is a 2025 Gujarati devotional drama directed by Ankit Sakhiya. The film follows Laalo, a rickshaw driver trapped in a remote farmhouse, forced to confront past regrets and receive guidance through visions of Lord Krishna. Blending mythology, rural reality, and emotional depth, the movie tells a story of redemption, faith, and self-discovery. The narrative's spiritual essence and compelling performances, especially by Karan Joshi, have deeply resonated with audiences. Laalo saw modest opening collections, but through strong word of mouth gained blockbuster status, collecting over ₹10 crore worldwide and becoming one of the highest-grossing Gujarati films of 2025[web:1][web:2][web:5].
 
-# Laalo Gujarati Movie Cast
+# [Laalo Gujarati Movie Cast](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/2)
 
 - Karan Joshi as Lalji Dhansukh Parmar  
 - Reeva Rachh as Tulsi  
@@ -19,23 +19,23 @@ Laalo: Krishna Sada Sahaayate is a 2025 Gujarati devotional drama directed by An
 - Mahida Kaushik  
 - Vaja Dhirajben[web:11][web:1].
 
-# Laalo Gujarati Movie Budget
+# [Laalo Gujarati Movie Budget](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/3)
 
 - Estimated budget: ₹4 crore[web:22].
 
-# Laalo Gujarati Movie Time Duration
+# [Laalo Gujarati Movie Time Duration](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/4)
 
 - Approximately 135 minutes (2 hours 15 minutes)[web:1][web:27].
 
-# Laalo Gujarati Movie Release Date
+# [Laalo Gujarati Movie Release Date](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/5)
 
 - Released on October 10, 2025[web:14][web:1].
 
-# Laalo Gujarati Movie Watch Online
+# [Laalo Gujarati Movie Watch Online](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/6)
 
 - Available on streaming platforms such as Amazon Prime Video and other regional OTT services[web:12][web:14].
 
-# Laalo Gujarati Movie Review
+# [Laalo Gujarati Movie Review](https://github.com/amelia-coder-ai/lalo-gujarati-movie-2025/issues/7)
 
 - Highly praised for its emotional depth, spiritual themes, and authentic portrayal, Laalo is considered a significant milestone in Gujarati cinema for 2025[web:1].
 
