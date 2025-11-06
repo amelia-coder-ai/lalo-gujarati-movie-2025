@@ -1,4 +1,4 @@
-# Laalo Gujarati Movie Collection - 300 Word Summary
+# Laalo Gujarati Movie Collection
 
 Laalo: Krishna Sada Sahaayate is a 2025 Gujarati devotional drama directed by Ankit Sakhiya. The film follows Laalo, a rickshaw driver trapped in a remote farmhouse, forced to confront past regrets and receive guidance through visions of Lord Krishna. Blending mythology, rural reality, and emotional depth, the movie tells a story of redemption, faith, and self-discovery. The narrative's spiritual essence and compelling performances, especially by Karan Joshi, have deeply resonated with audiences. Laalo saw modest opening collections, but through strong word of mouth gained blockbuster status, collecting over ₹10 crore worldwide and becoming one of the highest-grossing Gujarati films of 2025[web:1][web:2][web:5].
 
